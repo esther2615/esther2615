@@ -1,4 +1,4 @@
-- 👋 oI, SOU @esther2615  [Alura]
+- 👋 Oi! SOU @esther2615  [Alura]
 - 👀 Sou estudante do  1sèrie no Leonardo Vilas Boas.
 - 🌱 Estou aprendendo a usar plataformas.
 - 💞️ Nas minhas horas vagas eu ama escutar mùsica.
