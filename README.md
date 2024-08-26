@@ -4,7 +4,7 @@
 - 💞️ Nas minhas horas vagas eu amo escutar mùsica.
 - 📫 Meu sonho è viajar
 - 😄 Pronouns: 00001115192607sp@al.educacao.sp.gov.br
-- ⚡ Fun fact:
+- ⚡ Fun fact:Amo o reggae
 
 <!---
 esther2615/esther2615 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
