@@ -1,7 +1,7 @@
 - 👋 Oi! SOU @esther2615, estudante do [Alura](https://www.alura.com.br)
 - 👀 Sou estudante do  1sèrie no Leonardo Vilas Boas.
 - 🌱 Estou aprendendo a usar plataformas.
-- 💞️ Nas minhas horas vagas eu ama escutar mùsica.
+- 💞️ Nas minhas horas vagas eu amo escutar mùsica.
 - 📫 Meu sonho è viajar
 - 😄 Pronouns: 00001115192607sp@al.educacao.sp.gov.br
 - ⚡ Fun fact:
